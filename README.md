@@ -1,1 +1,1 @@
-d
+Support Server : https://discord.gg/nKaM6RrN92
